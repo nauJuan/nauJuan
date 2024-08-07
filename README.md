@@ -7,4 +7,4 @@
 ### Entre em contato comigo em 
 rjuanzin@gmail.com
 
-![bolacha](https://c.tenor.com/9Fpd3VN3sM8AAAAd/tenor.gif)
+![](https://c.tenor.com/9Fpd3VN3sM8AAAAd/tenor.gif)
