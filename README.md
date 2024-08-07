@@ -7,4 +7,4 @@
 ### Entre em contato comigo em 
 rjuanzin@gmail.com
 
-- ![paiaso rachando o bicolas](https://c.tenor.com/XwJXKp3JXE8AAAAd/tenor.gif)
+- ![bolacha](https://c.tenor.com/XwJXKp3JXE8AAAAd/tenor.gif)
